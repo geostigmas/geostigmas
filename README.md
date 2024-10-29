@@ -9,4 +9,4 @@ c+h and int positive :) i like talking to people
 
 most of the time i'm at spawn on 18+ if you want to find me
 ^
-ON that note I'm usually with my boyfriend or my bestfriend [noct](
+ON that note I'm usually with my boyfriend or my bestfriend [noct](https://github.com/metaltango) i love them both :)
