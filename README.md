@@ -3,7 +3,7 @@ if you want to know a bit about me you should check out my [pronouns.cc](https:/
 
 I don't care who interacts with me as long as you're not weird. i hide and block freely (TOO freely!!!) because I don't take this horse game seriously and i like to have unbothered fun
 
-i don't think anyone will but pleasw don't take insp or copy my skins.
+i don't think anyone will but please don't take insp or copy my skins.
 
 c+h and int positive :) i like talking to people
 
